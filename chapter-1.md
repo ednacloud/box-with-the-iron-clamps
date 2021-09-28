@@ -62,3 +62,29 @@ And then Mrs. Damer, being securely landed, was permitted to fly into the cousin
 “My dear Bella!”
 
 “My dearest Blanche—I am so delighted to see you again. Why, you are positively frozen! Pray come in at once to the fire. Colonel Damer, my servants will see to the luggage—do leave it to them, and come and warm yourselves.”
+
+A couple of men-servants now came forward and offered to see to the unloading of the carriage—but Mrs. Damer did not move.
+
+“Will you not go in, my love, as your cousin proposes?” said her husband. “I can see to the boxes if you should wish me to do so.”
+
+“No, thank you,” was the low reply; and there was such a ring of melancholy in the voice of Mrs. Damer that a stranger would have been attracted by it. “I prefer waiting until the carriage is unpacked.”
+
+“Never mind the luggage, Blanche,” whispered Mrs. Clayton, in her coaxing manner. “Come in to the fire, dear —I have so much to tell you.”
+
+“Wait a minute, Bella,” said her cousin; and the entreaty was so firm that it met with no further opposition.
+
+“One—two—three—four,” exclaimed Colonel Damer, as the boxes successively came to the ground. “I am afraid you will think we are going to take you by storm, Mrs. Clayton; but perhaps you know my wife’s fancy for a large travelling kit of old. Is that all, Blanche?”
+
+“That is all—thank you,” in the same low melancholy tones in which she had spoken before. “Now, Bella, dear, which is to be my room?”
+
+“You would rather go there first, Blanche?”
+
+“Yes, please—I’m tired. Will you carry up that box for me?” she continued, pointing out one of the trunks to the servant.
+
+“Directly, ma’am,” he returned, as he was looking for change for a sovereign wherewith to accommodate Colonel Damer—but the lady lingered until he was at leisure.
+
+Then he shouldered the box next to the one she had indicated, and she directed his attention to the fact, and made him change his burden.
+
+“They’ll all go up in time, ma’am,” the man remarked; but Mrs. Damer, answering nothing, did not set her foot upon the stairs until he was half-way up them, with the trunk she had desired him to take first.
+
+Then she leaned wearily upon Bella Clayton’s arm, pressing it fondly to her side, and so the two went together to the bedroom which had been appointed for the reception of the new guests. It was a large and cosily-furnished apartment, with a dressing room opening from it. When the ladies arrived there they found the servant awaiting them with the box in question.
