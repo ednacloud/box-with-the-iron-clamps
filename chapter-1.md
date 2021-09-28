@@ -36,3 +36,29 @@ He spoke with a degree of sarcasm, real or feigned, which Mrs. Clayton immediate
 “Doubtless I shall,” he replied; “that is if she does not lay claim to all Mrs. Clayton’s interest in the affairs of Molton Chase.”
 
 “No fear of that,” laughed the cheery little lady as she ascended the stairs, and left Mr. Laurence standing in the hall beneath.
+
+“Clayton,” observed that gentleman, as he re-entered the luncheon-room and drew his host into the privacy of a bay-window, “I really am afraid I shall have to leave you this evening—if you won’t think it rude of me to go so suddenly.”
+
+“But why, my dear fellow?” exclaimed Harry Clayton, as his blue eyes searched into the other’s soul. “What earthly reason can you have for going, when your fixed plan was to stay with us over Christmas Day?”
+
+“Well! there is lots of work waiting for you to do, you know; and really the time slips away so, and time is money to a slave like myself—that—”
+
+“Now, my dear Laurence,” said Harry Clayton, conclusively, “you know you are only making excuses. All the work that was absolutely necessary for you to do before Christmas was finished before you came here, and you said you felt yourself licensed to take a whole month’s holiday. Now, was not that the case?”
+
+Mr. Laurence could not deny the fact, and so he looked undecided, and was silent.
+
+“Don’t let me hear any more about your going before Christmas Day,” said his host, “or I shall be offended, and so will Bella; to say nothing of Bella’s sister—eh, Laurence?”
+
+Whereupon Mr. Laurence felt himself bound to remain; and saying in his own mind that fate was against him, dropped the subject of his departure altogether.
+
+One hour later, the riding party being then some miles from Molton Chase, a travelling carriage laden with trunks drove up to the house, and Mrs. Clayton, all blushes and smiles, stood on the hall-steps to welcome her expected guests.
+
+Colonel Damer was the first to alight. He was a middle-aged man, but with, a fine soldierly bearing. Which took off from his years; and he was so eager to see to the safe exit of his wife from the carriage-door that he had not time to do more than take off his hat to blooming Bella on the steps.
+
+“Now, my love,” he exclaimed as the lady’s form appeared, “pray take care; two steps; that’s right—here you are, safe.”
+
+And then Mrs. Damer, being securely landed, was permitted to fly into the cousinly arms which were opened to receive her.
+
+“My dear Bella!”
+
+“My dearest Blanche—I am so delighted to see you again. Why, you are positively frozen! Pray come in at once to the fire. Colonel Damer, my servants will see to the luggage—do leave it to them, and come and warm yourselves.”
